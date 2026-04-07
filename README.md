@@ -1,3 +1,5 @@
+i actually cant believe im writing this but if you have someone write n.s.f.w of me and you please don't mention OR SHOW IT around me. please
+
 ojima takeshi strawpage is a wip
 
 hey all, thanks to michael on my ata for showing me how to make this thingy,,,,
