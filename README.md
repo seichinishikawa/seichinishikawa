@@ -1,4 +1,4 @@
-i actually cant believe im writing this but if you have someone write n.s.f.w of me and you please don't mention OR SHOW IT around me. please
+hiroakis or whatever wya 👀 
 
 ojima takeshi strawpage is a wip
 
