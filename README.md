@@ -2,6 +2,7 @@
 
 any doubles feel free to int lmao
 
+NOTE: I DONT THINK MY STRAWPAGE GIMMICKS ARE GOING THROUGH. DONT LEAVE ANY THROUGH STRAWPAGE AT LEAST. u can send em in my discord dms or smth if u want
 ojima takeshi strawpage is a wip
 
 hey all, thanks to michael on my ata for showing me how to make this thingy,,,,
