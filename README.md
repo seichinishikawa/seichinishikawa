@@ -2,6 +2,9 @@
 
 ^ not an irlkin
 
+<img width="694" height="483" alt="image" src="https://github.com/user-attachments/assets/d6dac3f0-cbab-4608-9e2d-cc5e47dc71f9" />
+
+
 any doubles feel free to int lmao
 
 ojima takeshi strawpage is a wip
