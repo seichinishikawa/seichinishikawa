@@ -50,5 +50,6 @@
 <p>&nbsp;</p>
 
 <div align="center">
-  <a href="https://ojimatakeshi0.straw.page">MAIN STRAPAGE</a> 
+  <a href="https://ojimatakeshi0.straw.page">MAIN STRAPAGE</a> <a href="https://seichinishikawa.atabook.org/">ATABOOK</a>
+</div>
 </div>
