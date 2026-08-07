@@ -16,3 +16,7 @@
 </p>
 
 <br clear="left">
+
+<div align="center">
+  <img width="382" height="12" alt="IMG_7583" src="https://github.com/user-attachments/assets/17f4cb67-a527-4bd6-9322-866563db939a" />
+</div>
