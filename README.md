@@ -40,3 +40,9 @@
 <p align="center">
   <font size="4">My biggest interest is Tetro Danganronpa. (I DON’T SUPPORT VONBABBIT!! AT ALL!!) My favorite characters are Ojima Takeshi(Also my fictkin.) and Hirose Shingo. I also like the original danganronpa games, and some fanganronpas such as Antebellum Lockdown(PLS NO SPOILERS), Mindlock Protocol, and Danganronpa Marcescence. I also really like Project Vitate. PLEASE CHECK THAT OUT!! (I also like a lot of other stuff that isn’t just Danganronpa but I’m too lazy to list them all.) </font>
 </p>
+
+<p>&nbsp;</p>
+
+<div align="center">
+  <img width="382" height="12" alt="IMG_7583" src="https://github.com/user-attachments/assets/17f4cb67-a527-4bd6-9322-866563db939a" />
+</div>
