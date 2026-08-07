@@ -20,3 +20,12 @@
 <div align="center">
   <img width="382" height="12" alt="IMG_7583" src="https://github.com/user-attachments/assets/17f4cb67-a527-4bd6-9322-866563db939a" />
 </div>
+
+<p>&nbsp;</p>
+
+<p align="center">
+  <font size="4">I’m somewhat shy, so I typically don’t interact first unless extremely close. Also, don’t take anything personally if I respond with dry texts. How I text depends on my mood usually (I have a lot of mood swings.)</font>
+</p>
+<p align="center">
+  <font size="4">If close, I might make jokes that might be insensitive. Please let me know if I make you uncomfortable if I do! Also, I will typically use tone tags. (DEPENDING ON WHO I’M TALKING TO.)</font>
+</p>
