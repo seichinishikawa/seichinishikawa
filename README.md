@@ -1,1 +1,1 @@
-trying to redo my git. i have no idea how anything works besr with me
+trying to redo my github. i have no idea how anything works bear with me
