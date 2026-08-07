@@ -6,6 +6,14 @@
   <font size="4">HE / ANY.</font>
 </p>
 
+<p>&nbsp;</p>
+
+<div align="center">
+  <img width="382" height="12" alt="IMG_7583" src="https://github.com/user-attachments/assets/17f4cb67-a527-4bd6-9322-866563db939a" />
+</div>
+
+<p>&nbsp;</p>
+
 <p>
   <img src="https://github.com/user-attachments/assets/c29ae37d-966a-4875-9b74-67542ab2563f" width="350" align="left">
   &nbsp;&nbsp;&nbsp;
