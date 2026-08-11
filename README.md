@@ -23,6 +23,20 @@
   Ask 4 inspo! Usually will say it’s okay unless it’s a pony gifted to me. NO COPY unless you’re a close friend and I give you permission to. 
 </p>
 
+<p>&nbsp;</p>
+
+<div align="center">
+  <img width="382" height="12" alt="IMG_7583" src="https://github.com/user-attachments/assets/17f4cb67-a527-4bd6-9322-866563db939a" />
+</div>
+
+<p>&nbsp;</p>
+
+  <font size="4">🟢 :: Feel free to talk!</font>
+  
+  <font size="4">🌙 :: Possibly offtab, whisper me</font>
+  
+  <font size="4">⛔️ :: Busy, probably not going to see msgs</font>
+
 <br clear="left">
 
 <div align="center">
