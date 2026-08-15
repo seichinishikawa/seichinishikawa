@@ -8,7 +8,7 @@
 
 <p>&nbsp;</p>
 
-<img width="305" height="55" alt="image" src="https://github.com/user-attachments/assets/2d006b4c-8801-4224-8e05-a0a6a2484923" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e0cde88b-f7a4-4af9-a5d8-fb4e9c67f979" />
+<img width="305" height="55" alt="image" src="https://github.com/user-attachments/assets/2d006b4c-8801-4224-8e05-a0a6a2484923" /> 
 
 
 
@@ -73,3 +73,7 @@
   <a href="https://ojimatakeshi.straw.page/">MAIN STRAPAGE</a> <a href="https://seichinishikawa.atabook.org/">ATABOOK</a>
 </div>
 </div>
+
+<p>&nbsp;</p>
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/978a3d3f-2cf1-43ac-9734-26bee23b37ee" /> <img width="88" height="31" alt="image" src="https://github.com/user-attachments/assets/9348e97b-7646-4a14-b213-6b8741ec0001" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e0cde88b-f7a4-4af9-a5d8-fb4e9c67f979" />
+
