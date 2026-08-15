@@ -37,7 +37,7 @@
 
 <p>&nbsp;</p>
 
-  <font size="4">🟢 :: Feel free to talk!</font>
+  <font size="4">🟢 :: Feel free to talk! I’m probably looking for chat but I’ll never use the little indicators for that</font>
   
   <font size="4">🌙 :: Possibly offtab, whisper me</font>
   
