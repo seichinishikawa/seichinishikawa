@@ -70,7 +70,7 @@
 <p>&nbsp;</p>
 
 <div align="center">
-  <a href="https://ojimatakeshi.straw.page/">MAIN STRAPAGE</a> <a href="https://seichinishikawa.atabook.org/">ATABOOK</a>
+  <a href="https://ojimatakeshi.straw.page/">MAIN STRAWPAGE</a> <a href="https://seichinishikawa.atabook.org/">ATABOOK</a>
 </div>
 </div>
 
