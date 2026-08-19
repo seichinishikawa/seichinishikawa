@@ -9,6 +9,7 @@
 <p>&nbsp;</p>
 
 <img width="305" height="55" alt="image" src="https://github.com/user-attachments/assets/2d006b4c-8801-4224-8e05-a0a6a2484923" /> 
+<img width="520" height="112" alt="image" src="https://github.com/user-attachments/assets/098bed02-6e7e-4207-bd7e-215c63cbd7a2" /> thats me on HOM chat
 
 
 
